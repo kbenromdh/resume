@@ -1,5 +1,5 @@
 # Karim Ben-Romdhane
-📞 201-660-4556 | ✉️ kbenromdh@gmail.com | [LinkedIn](https://www.linkedin.com/in/karim-benromdhane/) | 
+📞 201-660-4556 | ✉️ kbenromdh@gmail.com | [LinkedIn](https://www.linkedin.com/in/karim-benromdhane/)
 
 ---
 
